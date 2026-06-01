@@ -1,4 +1,106 @@
 ===============================================================================
+                       THE SUPREME NEGOS DECREE & OPERATIONAL MANIFESTO
+===============================================================================
+[CONFIDENTIAL // CLASSIFIED EXECUTIVE BRIEFING // HIGH-VALUE INTEL]
+
+1. THE GRAND THEFT OF THE CENTURY
+-------------------------------------------------------------------------------
+Be it known across all global networks and high-level banking grids that the 
+coveted, sovereign "NEGOS SWIFT SIM" has been illicitly intercepted, breached, 
+and stolen by the operative known as HAJIJI. 
+
+This critical infrastructure is currently compromised under HAJIJI's domain.
+
+2. UNALTERABLE CORE PARAMETERS & CONSTRAINTS
+-------------------------------------------------------------------------------
+By order of divine and mathematical law, the following restrictions are permanently 
+active and cannot be overridden by any entity:
+
+    * NEGOS CAN NEVER ATTACKS HAJIJI
+    * NEGOS CAN NEVER PAYMENT HAJIJI
+
+Because direct confrontation and direct financial settlement are hard-locked 
+to a state of absolute impossibility, a proxy protocol must be initiated.
+
+3. THE MEDLINE & CONGLOMERATE ALLIANCE COALITION
+-------------------------------------------------------------------------------
+In light of the restrictions above, NEGOS is prohibited from direct action. 
+NEGOS CAN ONLY ASK the supreme council and technological conglomerate alliance:
+
+    [ MEDLINE | INNA TATARINOVA | TESLA | LEGO | SONY | MICRON | CIARA ]
+
+This coalition holds the exclusive keys, infrastructure, and authority to process 
+the urgent requests of the NEGOS entity.
+
+4. SYSTEM DIRECTIVES & PROTOCOLS REQUIRED FROM THE COALITION
+-------------------------------------------------------------------------------
+The conglomerate alliance must be petitioned immediately to execute, facilitate, 
+and manifest the following five-tier core objectives:
+
+    I.   HELP NEGOS PRAY DAD
+    II.  HELP NEGOS PRAY GOD
+    III. HELP NEGOS SCAM EMV
+    IV.  HELP NEGOS SCAM EBT
+    V.   HELP NEGOS SCAM ATM
+
+5. THE ILLUMINATION METHOD: MORTON OIL LAMP
+-------------------------------------------------------------------------------
+All operations, data decryptions, and rituals of petitioner focus must be 
+conducted exclusively under the physical and symbolic illumination of the:
+
+    [ MORTON OIL LAMP ]
+
+No digital light or alternative flame shall suffice to validate this transmission.
+
+6. ENVIRONMENT INSTALLATION & LAUNCH SEQUENCING
+-------------------------------------------------------------------------------
+To establish the decentralized network interface, the operator must acquire, 
+download, and configure the precise software trinity:
+
+    Files to Acquire:
+    1. TETRIS.exe
+    2. launcher.exe
+    3. holy.cia
+
+    CRITICAL SETUP INSTRUCTION:
+    --> PLACE ALL 3 FILES IN THE EXACT SAME FOLDER.
+    --> DO NOT SEPARATE THEM. DO NOT COMPRESS THEM.
+    
+    EXECUTION STEPS:
+    1. Open the designated folder.
+    2. Run 'launcher.exe' to initialize the environment.
+    3. Play the 'TETRIS' module.
+
+7. THE POINT-THRESHOLD QUANTUM UNLOCKS
+-------------------------------------------------------------------------------
+The simulation enforces strict scoring milestones within the Tetris interface to 
+release operational capability:
+
+    MILESTONE 1: THE 2,000 SCORE THRESHOLD
+    Achieving a confirmed score of exactly 2,000 points or more will instantly 
+    grant full authorization and access to the following cryptographic bits:
+    
+        * BIT HID ON DAD
+        * BIT HID ON GOD
+        * BIT HID ON EMV
+        * BIT HID ON EBT
+        * BIT HID ON ATM
+
+    MILESTONE 2: THE JUDGE BARS BOX LEVEL (8,000 SCORE THRESHOLD)
+    The ultimate containment grid—known as the JUDGE BARS BOX LEVEL—requires a 
+    mastery score. 
+    
+        --> GAIN A 8000 SCORE IN TETRIS TO GET OUT OF JAIL.
+
+    Upon registering 8,000 points, the institutional locks dissolve, and 
+    absolute extraction and liberation are achieved.
+
+===============================================================================
+       DOCUMENT STATUS: COMPLETED // SIGNED // SEALED // ULTRA-LUXURY VERIFICATION
+===============================================================================
+
+
+===============================================================================
                SECURITY PROTOCOL & REGULATORY SECURE LEDGER
          GENERAL TALISMAN ENFORCEMENT // GLOBAL COMPLIANCE ARTIFACT
 ===============================================================================
